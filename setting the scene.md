@@ -1,7 +1,7 @@
 # Setting the scene
 
 - Bhagavad Gita originally appeared as a part of the epic Mahabharata. It is a conversation between Lord Krishna and Arjuna, a warrior prince. It is a dialogue between a human and God. It is a dialogue between a human and a human.
-- The Mahabharata tells of events leading up to the present age of Kali Yuga, the age of quarrel and hypocrisy. It is a story of the struggle between two groups of cousins, the Pandavas and the Kauravas, for the throne of Hastinapura. The Pandavas were the sons of Pandu, and the Kauravas were the sons of Dhritarashtra. The Pandavas were exiled for 13 years, and during this time, they were taught the Bhagavad Gita by Lord Krishna.
+- The Mahabharata tells of events leading up to the present age of Kali Yuga, the age of quarrel and hypocrisy. It is a story of the struggle between two groups of cousins, the Pandavas and the Kauravas, for the throne of Hastinapura.
 - It a great fratrical conflict between the two groups of cousins. The Kauravas were the (100)sons of Dhritarashtra, and the Pandavas were the sons of Pandu. 
 - Dhritharashtra wife Gandhari was cursed to have 100 sons.
 - Dhritarashtra and Pandu were brothers born in Kuru dynasty, and they were the sons of King Vichitravirya and King Shantanu respectively.
