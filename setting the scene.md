@@ -2,7 +2,7 @@
 
 - `Bhagavad Gita` originally appeared as a part of the epic `Mahabharata`. It is a conversation between `Lord Krishna and Arjuna`.
 - The Mahabharata tells of events leading up to the present age of `Kali Yuga`, the age of quarrel and hypocrisy. It is a story of the struggle between two groups of cousins, the `Pandavas` and the `Kauravas`, for the throne of `Hastinapura`.
-- It a great fratrical `conflict` between the `two groups of cousins`. The `Kauravas were the (100)sons of Dhritarashtra`, and the `Pandavas were the sons of Pandu.
+- It a great fratrical `conflict` between the `two groups of cousins`. The `Kauravas were the (100)sons of Dhritarashtra`, and the `Pandavas were the sons of Pandu`.
 - `Dhritharashtra` wife `Gandhari was cursed` to have `100 sons`.
 
 - Descendants of King Vichitravirya were called `Kauravas`, and descendants of King Shantanu were called `Pandavas`. The Kauravas were the sons of Dhritarashtra, and the Pandavas were the sons of Pandu.
@@ -22,3 +22,11 @@
 - He was `born in the Yadava clan`, and he was the `son of Vasudeva and Devaki`.
 - In this role he was also the `nephew of Pandu's wife Kunti`, or Pritha, the `mother of the Pandavas`.
 - So both as a `relative and as the eternal upholder of dharma`, Krishna favored the righteous sons of Pandu and `Protected them`.
+
+- However the clever Duryodhana invited the Pandavas to a gambling match. Dhuryodhana and his brothers were `expert gamblers`, and they `won everything` from the Pandavas.
+- Dhuryodhana and his brother took possession of `Draupadi`, the `wife of the Pandavas`, and insultily tried to strip her naked before the entire assembly of princes and kings. Krishna's divine intervention saved Draupadi from this `shameful act`, but the gambling which was rigged in favor of the Kauravas, `forced the Pandavas to go into exile for 13 years`.
+
+- Upon returning from exile, the Pandavas rightfully claimed their `rightful place as the rulers of the kingdom`, but Duryodhana and his brothers `refused to accept them as the rightful heirs to the throne`. 
+- Dutybond a prince to serve in public administration, the five Pandavas reduced their request to mere five villages, but Duryodhana and his brothers arrogantly replied that `they would not give even a small land to drive a pin`.
+
+- Throughout all this, the Pandavas has been consistently `tolerant and forbearing`. But now the `war seemed inevitable`, and the Pandavas were `forced to fight for their rights`.
