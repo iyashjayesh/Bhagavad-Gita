@@ -30,3 +30,18 @@
 - Dutybond a prince to serve in public administration, the five Pandavas reduced their request to mere five villages, but Duryodhana and his brothers arrogantly replied that `they would not give even a small land to drive a pin`.
 
 - Throughout all this, the Pandavas has been consistently `tolerant and forbearing`. But now the `war seemed inevitable`, and the Pandavas were `forced to fight for their rights`.
+
+- Krishna Himself Took the role of `messenger for the son of Pandu` and went to the `Dhritarashtra court to plead for peace`.
+
+- Krishna's `message was rejected`, and the war was now certain.
+
+- The Pandavas recognized Krishna to be the `Supreme Personality of Godhead`, whereas the impious sons of Dhritarashtra did not. Yet Krishna offered to enter the war according to the desire of the antagonists. As god he would not personally fight, but `whoever so desired might have avail himself of Krishna's army and on the other side could have krishna himself as an advisor and helper`. 
+
+- Duryodhana, the political genius snatched the Krishna's `armed forces`, while the Pandavas were `equally eager` to have Krishna Himself. 
+
+- In this way `Krishna become the charioteer of Arjuna`, taking it upon himself to drive. 
+
+***THIS BRING US TO THE BEGINNING OF THE BHAGAVAD GITA WHERE TWO ARMIES ARRAYED AGAINST EACH OTHER, AND READY FOR THE COMBAT.***
+
+
+
